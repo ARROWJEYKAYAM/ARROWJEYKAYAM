@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ARROWJEYKAYAM
+- 👋 Hi, I’m @A.JKM
 - 👀 I’m interested in .tech.
 - 🌱 I’m currently studying software engineering.
 - 📫 How to reach me .munhenzvajoelk@gmail.com.
